@@ -1,2 +1,0 @@
-# weddesain
-tugaswebdesain
